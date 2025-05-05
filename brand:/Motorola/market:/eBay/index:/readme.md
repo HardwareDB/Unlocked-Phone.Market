@@ -1,1 +1,0 @@
-- $61.70 [Motorola Moto G Stylus 128GB Indigo XT2043-5 (Unlocked) Fully Functional DG9189](https://www.ebay.com/itm/306280808536)
